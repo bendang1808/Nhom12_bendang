@@ -2,4 +2,4 @@
 Dự án đầu tiên của tôi
 Nguyễn Phạm Đăng Khoa
 MSSV: 25139018
-fuck thằng Linh thộn
+fuck thằng linh thộn
